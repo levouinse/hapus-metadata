@@ -1,1 +1,1 @@
-LO PADA STAR IN KXNCL
+Jangan lupa kasih star ya bang:)
